@@ -1,0 +1,9 @@
+Blink: At Professional tier, you may teleport instantly up to ten meters in any direction of your choosing. When you do so, you must be able to see where you are going but you can teleport through transparent surfaces such as glass. You leave behind a faint glow on the surface you teleported through for ten minutes whenever you do so. You may use this ability a number of times equal to your Observation modifier per day. 
+
+Shock to the System: Starting at Professional tier, pick two enemies that you can see. Those enemies make Willpower saving throws against your Psionics DC. If the targets fail, they are knocked prone and stunned until the start of their next turn. At Veteran tier, you target three enemies and four enemies at Elite tier. 
+
+Launch (see Psion)
+
+Ethereal Cover: At Veteran tier you may telekinetically create a block of cover that covers a 1x1x1m cube. This cover counts as heavy cover and lasts for one minute. Gunfire and explosions do not pass through this ethereal barrier but characters and vehicles can. You may use this ability a number of times equal to your Observation modifier, expending an action each time it is used. 
+
+Ethereal Movement: At Elite tier, the character may levitate at will and gains the Flying tag while doing so. Additionally the character may stick to surfaces, even upside down, and does not count as flying while doing so. Void Portal: At Legendary tier, the character may open a pair of linked portals within 200m of themselves at points which they can see. No characters can pass through these portals but gunfire, explosions and abilities can in both directions. You may use this ability up to a number of times equal to your Observation modifier per day.
