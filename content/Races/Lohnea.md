@@ -1,0 +1,47 @@
+## Appearance
+
+The Lohneans resemble strange rabbit-like creatures that stand upright like humans. Their ears are long and unlike humans their legs make up a much more considerable portion of their height. A Lohnean's body is covered with fur and they generally resemble something out of a fan fiction rather than a truly evolved race of their own homeworld. Little is known about where they come from and even the Lohneans themselves are unaware of where their original homeworld resides. After fighting dozens of wars with the Scrin, the Lohneans were reduced to slaves as a species. The majority of them can be seen wearing collars even when not enslaved and such has become a part of their culture over millennia. It is hypothesized that the Lohneans were genetically modified to look like their current state though it is uncertain why or who made these changes. Still, most of them are regarded as beautiful regardless of the observer's race and are often described as appearing 'cuddly' or 'fluffy'.  
+
+## Culture
+
+Much of the Lohnean culture has been eradicated after their millennia of enslavement under the Scrin. Current Lohneans, those who are still enslaved at least, regard their enslavement as necessary in many aspects and regard the Scrin as their protectors rather than those who subjugated their race. Their traditional foods are very bland and nearly tasteless with nutrient paste being a staple in their diets. Art in Lohnean culture is very melancholy and avoids bright colors and sharp contrasts with most paintings being done in grayscale. At first, scientists assumed that Lohneans saw in infrared and were seeing different colors than what was apparent to humanity... but after various tests it appears that Lohneans see in the same color spectrum as humanity. Music is nearly nonexistent in their small societies despite their incredible hearing and artworks often feature their enslavement as a species thousands of years ago. Lohneans that were either liberated during wars against the Scrin or were never raised in the environment often do not share these habits.
+
+For most Lohneans, service is better than leadership and leadership is often chosen for someone else who doesn't want the job by popular vote in the absence of a Scrin leader. Meekness, mildness and subservience are expected of Lohneans: males and females alike. Most Lohneans will accept any punishment deemed necessary by an owner or superior (military superior officers, leaders of the community, etc.). Theories about the subject include the Scrin purposefully wiping and suppressing the Lohnean culture over time and in its place putting this new culture to ensure their obedience as slaves. Another simply posits that these cultural behaviors already existed though this is generally regarded as unlikely given the number of rebellions noted in Scrin history which have been led by Lohnean leaders who chose the position.
+
+Interestingly, Lohneans tend to seek out technological fields; even those involving the creation and manufacturing of weapons and armor despite their natural tendency to avoid combat. They are often seen as engineers, scientists and other such experts when they are not held in captivity. It is widely accepted that Lohneans are incredibly intelligent though why their vast intellect did not allow them to avoid enslavement by the Scrin remains a mystery. The pursuit of knowledge, regardless of where the Lohnean lives, seems to be something inborn to the entire species that seeks to expand the limits of their mental prowess. Lohneans do not tend to be psionically gifted, however, which leads to even more speculation among experts since heightened intellect tends to go hand in hand with advanced psionic capability.
+
+### Enslavement
+
+Lohneans as a species have mostly been enslaved by the Scrin. Though their enslavement has cost them much, it costs the individual different things in their lives. Some Lohneans are born into the role of Gladiators and fight for most of their limited survival in coliseums, others are born into being house slaves and everything in between. Few of them, however, are seen performing menial labor like farming which the Scrin usually delegate to another enslaved species or to smaller Scrin.
+
+#### Gladiators
+
+The Gladiator slaves are rare but important in Lohnean and Scrin society. To the Scrin they serve as cannon fodder; soaking up bullets from the front lines so that the enemies of the Scrin can be engaged in close combat. For the Lohnean society, Gladiator slaves are revered as exceptionally brave individuals despite having no choice but to accept being in their position. A Gladiator is promised freedom if they perform well in battle though few do. To date, only a handful of instances of a Lohnean slave winning their freedom have been recorded.
+
+At birth, a weapon is bestowed upon them by the mother who either crafts or has handed down the weapon through generations. Most often, the father of the family unit is unknown though not always. When they are known, the weapon is most commonly handed down after the father is killed in battle for their Scrin overlords. Lohnean women do not become Gladiator slaves in Scrin society and instead serve similarly to house slaves with the exception that they will inevitably be artificially inseminated to give birth to another Lohnean Gladiator. Those who give birth to female Lohneans can expect their children to suffer the same fate. Seldomly, a Gladiator child is conceived naturally which typically ends in a slave master disposing of both parents when they are caught.
+
+Gladiator slave children are taught by their elders how to fight by striking and evading; always staying as far away from their opponent as possible while remaining close enough that they can reengage when necessary. Particularly well-off Gladiator families will have a handgun or sometimes a shield to aid them in battle. Rarely are they given armor or any firearm with sufficient armor penetrating capabilities to make them a threat to those who throw them into the fray (sometimes literally). Retreating is an option for these slaves though it will cost them their freedom forever and if they retreat too often their Scrin overlords and slave masters are likely to execute them.
+
+#### House Slaves
+
+Among their kind, Lohneans regard the House Slave as the easiest job amongst the other jobs. Most tasks for house slaves involves laundry, cooking, cleaning and other typical household chores. What set Lohnean slaves apart is their other critical tasks. Scrin never harm their house slaves without exceptional circumstances and will even fight to protect them from harm. For a Scrin, to allow harm to befall a house slave is to bring great dishonor upon the entire household and family clan. House slaves are never starved or abused save for spectacular instances such as attempting escape, harming another house slave, harming one of the Scrin family or an ally of the Scrin family.
+
+Many Scrin often confide many secrets with their house slaves and sometimes even look to them for guidance on certain everyday issues. House slaves are expected to care about these issues such as the death of one of their master's friends, family members, financial troubles and much more. Often, these slaves give good advice and counsel; learning this advice from their elders and from observing the family members of the Scrin in question. Younger Scrin have often formed tight bonds with their house slaves and some have even released their house slaves from service to take them as concubines or even, though exceptionally rarely, as wives or husbands.
+
+Punishment for a house slave is rare and most are well behaved slaves that know no other life. A house slave exiting their physical property is only done in grave situations such as their master becoming ill and needing medical attention that they cannot provide. Though they are never intended for battle, some house slaves have taken up arms to defend their masters and homes in the case of an intruder in the past and fought valiantly despite the general cowardice of their species.
+
+## Religion
+
+Lohneans have no centralized religion and instead tend to adopt religions of others as they see fit. Their reasons for adopting these religions vary though Lohneans in the United Systems Confederacy tend to experience "a calling" with no specific reason given. Those that still exist within the airspace of the Scrin tend to adopt the religion of their masters because "they were correct and fought to prove it". When asked for further explanation on the subject, there appear to be no cohesive elaborations about what "fought to prove it" means. A constant through any religion chosen by Lohneans is that, no matter what religion they select, they are lesser than the parent species that the religion originated from. For example, in the afterlife, most Lohneans consider themselves to be a slave species to the parent species if the religion permits it. In some religions, Lohneans feel that they do not even have souls and were created solely to serve other species in the material world.
+
+## Size
+
+As a Lohnean, your base size is Small.  
+
+## Languages
+
+Lohneans speak one language of their choosing.
+
+|### **Racial Passive:**|   |
+|---|---|
+|When you would take the Movement Action, you move 8 Meters instead of 4.|   |
